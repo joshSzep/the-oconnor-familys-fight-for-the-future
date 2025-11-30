@@ -1,0 +1,1 @@
+Sara’s Innocence: Sara might run up and show them a picture she drew, maybe a drawing of the family above ground in a normal life. Xander could say, “That’s a beautiful picture, Sara. We’ll get back to that kind of life someday.” And Dr. O’Connor could add, “We will, sweetheart. I promise.”

@@ -1,0 +1,1 @@
+Hinting at Dr. O’Connor’s Past and Resolve: You could have a subtle moment where Dr. O’Connor glances at an old bottle tucked away, but he sets it aside firmly, showing his commitment to staying sober for his family. Maybe Xander notices and says, “We’re proud of you, Dad.” Dr. O’Connor could smile and reply, “I’m doing this for all of us.”

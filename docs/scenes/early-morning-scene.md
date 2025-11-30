@@ -1,0 +1,1 @@
+Early Morning Scene: Dr. O’Connor might start the day quietly, maybe pouring himself a cup of coffee and looking at that old photo. Xander might come over and say something like, “Dad, I think I’ve got this old battery pack working. It might help us keep the lights on longer.” Dr. O’Connor could smile and say, “That’s great work, Xander. Every little bit helps.”

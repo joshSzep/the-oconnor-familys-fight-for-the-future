@@ -1,0 +1,1 @@
+Sean’s Skepticism: Maybe Sean chimes in a bit more cautiously, saying, “But we have to be careful, right? If we use too much power, those patrols might notice us.” Dr. O’Connor could nod and say, “You’re right, Sean. We have to be smart about it. But we can’t live in the dark forever.” This shows Sean’s practical side and Dr. O’Connor’s balanced approach.

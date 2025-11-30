@@ -1,0 +1,1 @@
+The Inciting Incident and Final Words: When the inciting incident happens, Dr. O’Connor might gather them and say, “I know things have been hard, but we have a chance to change this. We can’t let fear control us anymore.” Xander might nod eagerly, while Sean might hesitate but eventually agree. And Sarah could just hold onto her dad’s hand, showing the family coming together.
