@@ -64,7 +64,7 @@ Begins the story focused on survival but evolves into a leader willing to risk e
 
 ## Notable Moments
 - **Morning Ritual:** Starts each day with coffee, looking at an old family photo—a quiet moment of reflection
-- **The Bottle:** A subtle scene where he glances at an old bottle but sets it aside firmly, showing his commitment to sobriety. Xander notices and says, "We're proud of you, Dad."
+- **The Bottle:** A subtle scene where he glances at an old bottle but sets it aside firmly, showing his commitment to sobriety. Xander notices and says, "We're proud of you, Dad, but don't be a dick."
 - **The Gathering:** When the inciting incident occurs, he gathers the family and declares, "I know things have been hard, but we have a chance to change this. We can't let fear control us anymore."
 
 ## Dialogue Style
