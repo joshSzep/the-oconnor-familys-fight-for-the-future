@@ -1,8 +1,8 @@
-Outline for Your Novel: The Biltworth Family’s Fight for the Future
+Outline for Your Novel: The O'Connor Family's Fight for the Future
 
 1. Introduction and World-Building
 
-Setting the Scene (2075): Describe a world where AI dominance has driven most humans underground or off-grid. Show the Biltworth family’s daily life and how they’re surviving. Introduce Dr. O’Connor, who’s both a doctor and a coder, and his sons Xander and Sean, along with their younger sister.
+Setting the Scene (2075): Describe a world where AI dominance has driven most humans underground or off-grid. Show the O'Connor family's daily life and how they're surviving. Introduce Dr. Jay O'Connor, who's both a doctor and a coder, and his sons Xander and Sean, along with their younger sister Sara.
 
 Family Dynamics: Highlight Sean’s skepticism and Xander’s optimism about changing the world, and the family’s protective instincts toward the younger sister.
 
