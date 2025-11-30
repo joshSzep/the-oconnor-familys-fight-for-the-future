@@ -17,10 +17,23 @@ Dr. Jay O'Connor is the patriarch of the O'Connor family—a widowed father rais
 - **Self-Disciplined:** Has overcome personal demons and works daily to stay strong for his family
 
 ## Background
-- Was a practicing physician before the AI takeover, also had coding skills from earlier in his career
+- Grew up working class, busted his ass through school to earn his Medical Doctor degree
+- Became a **small family practice doctor**—chose patient care over prestige or money
+- Also had coding skills from earlier in his career (possibly a hobby or side pursuit)
 - **Lost his wife in an AI-driven car accident**—the vehicle was automated, and he has never forgiven himself for not driving manually that day. This personal tragedy fuels his determination to fight back.
+- Had a past as a **"rounder"**—played poker seriously, perhaps semi-professionally or in underground games
 - Struggled with alcohol in the past but has committed to sobriety for his children
 - Keeps an old photo of the family from before—a reminder of what they're fighting to reclaim
+
+## Cultural Touchstones
+Dr. O'Connor has preserved pieces of the old world that matter to him, decorating their bunker with reminders of who he was and the culture he grew up in:
+
+- **Pink Floyd Album Cover:** A framed Pink Floyd album cover hangs on the bunker wall—perhaps *The Dark Side of the Moon* or *Wish You Were Here*. A reminder of the music that shaped him.
+- **Dogs Playing Poker:** A print of the classic "dogs playing poker" painting. It reminds him of his days as a rounder, sitting at tables reading opponents and calculating odds. Those skills still serve him.
+- **Old Family Photo:** The photo of his family from before—his wife, the kids when they were younger, a normal life.
+
+### Stories He Tells
+- **The Kendrick Lamar vs. Drake Feud:** He tells his children about the legendary hip-hop rivalry—the diss tracks, the cultural moment, what it meant. For the kids, it's ancient history. For him, it's a way to keep the old world alive and teach them that conflict can be waged with words and art, not just violence.
 
 ## Skills & Abilities
 - **Medical Expertise:** Can treat injuries and illnesses with limited supplies, making him valuable to the underground community
