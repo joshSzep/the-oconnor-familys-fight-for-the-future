@@ -32,6 +32,13 @@ Dr. O'Connor has preserved pieces of the old world that matter to him, decoratin
 - **Dogs Playing Poker:** A print of the classic "dogs playing poker" painting. It reminds him of his days as a rounder, sitting at tables reading opponents and calculating odds. Those skills still serve him.
 - **Old Family Photo:** The photo of his family from before—his wife, the kids when they were younger, a normal life.
 
+### Humor & Personality
+- **Archer Fan:** Dr. O'Connor was a devoted fan of the animated series *Archer*—loves the dark, absurdist sarcasm. In tense moments, he sometimes channels that energy: dry one-liners, deadpan delivery, finding the darkest possible joke in a bad situation. It's a coping mechanism, but also just who he is.
+- His kids have heard him mutter "phrasing" more than once.
+- **The Office Fan:** Also loved the NBC version of *The Office*. Has been known to give a knowing look to an imaginary camera during absurd moments. Occasionally quotes Michael Scott at inappropriate times ("I'm not superstitious, but I am a little stitious"). The deadpan Jim Halpert energy comes naturally to him.
+- Sometimes uses "That's what she said" at truly terrible moments, much to Sean's embarrassment and Xander's reluctant amusement.
+- Occasionally drops obscure references the kids don't get, then sighs dramatically when he has to explain.
+
 ### Stories He Tells
 - **The Kendrick Lamar vs. Drake Feud:** He tells his children about the legendary hip-hop rivalry—the diss tracks, the cultural moment, what it meant. For the kids, it's ancient history. For him, it's a way to keep the old world alive and teach them that conflict can be waged with words and art, not just violence.
 
